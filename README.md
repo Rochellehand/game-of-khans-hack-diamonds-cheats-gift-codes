@@ -1,2 +1,5 @@
-# game-of-khans-hack-diamonds-cheats-gift-codes
-Game of Khans Hack free diamonds Mod cheats gift codes 2021 with consorts list
+# Game of Khans Hack free diamonds Mod cheats gift codes 2021 with consorts list
+
+Game of Khans Hack free diamonds Mod cheats gift codes 2021 with consorts list - In the lower left corner of your Game of Khans gift codes redeem screen, you will see the next task that you need to complete to keep up with the speed of things, with each new Game of Khans code that you complete allowing you to increase your wealth, food, and / or soldiers. These Game of Khans cheats, as usual, are basic tasks, such as upgrading Vizier to a certain level or completing a certain campaign chapter - these tasks can be completed organically in the game as usual, but it will also help if you know what the next task is and you are working hard to complete it. When you need to rebuild your army, a completed mission may be a godsend, and using Game of Khans hack may be more helpful than going back to the draft screen every few minutes (but that's not to say you shouldn't use your taxes!) What's more, you will get all best consort gift list at then end of our mod engine!
+
+<a href="https://yintamod.xyz/game-of-khans/">visit here</a>
